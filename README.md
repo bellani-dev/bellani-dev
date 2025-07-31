@@ -55,4 +55,4 @@ Sou Bellani, 21 anos, **cidadão europeu** com experiência sólida em desenvolv
 
 > "Hack the system. Build the future. Proteja o que importa."
 
-![Hacker](https://media.giphy.com/media/qgQUggAC3Pfv687qPC/giphy.gif)
+![Hacker](https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExenE4eG13bmk2cHpmOXowajVoMXZ4YnN4MHBqcTVzeXNuZW1wa2lpdyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/EZr27ZbJwmjE9PGyLN/giphy.gif)
