@@ -45,11 +45,7 @@ Sou Bellani, 21 anos, **cidadão europeu** com experiência sólida em desenvolv
 
 ---
 
-## 📎 Links Importantes
-
-- 🚀 [Servidor no Discord (Contas Premium)](https://seu-link-aqui)
-- 🧠 [Portfólio completo (em breve)](https://seu-site-aqui.com)
-- 📫 Entre em contato: seu-email@email.com
+- 📫 Entre em contato: henzobellani@gmail.com
 
 ---
 
